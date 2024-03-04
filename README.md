@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @twyumeko
+- 👀 I’m interested in Airsoft and the old times
+- 🌱 I’m currently learning Medical Informatics and Biotechnic
+- 📫 How to reach me: on Instagram: tw.yumeko
+- 😄 Pronouns: she / her
+- ⚡ Fun fact: I love the nature 
